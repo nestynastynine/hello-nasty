@@ -1,2 +1,2 @@
 # hello-nasty
-nestynasty tes
+Hai nesty bajingan, apakah anda sudah mendapatkan vaksin untuk bertahan lebih lama di bumi ini
